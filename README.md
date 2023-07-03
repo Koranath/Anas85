@@ -1,6 +1,1 @@
-# Anas85
-# Anas85
-# Inception
-# Inception
-# Anas85
-# Anas85
+# Cloud adaptation for mid size company
